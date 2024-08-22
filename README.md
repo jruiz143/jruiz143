@@ -1,4 +1,5 @@
-## Hi there 👋
+## Hi there ![image](https://github.com/user-attachments/assets/3756f622-2672-444f-a4b9-834dc78edeea)
+
 
 <!--
 **jruiz143/jruiz143** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
