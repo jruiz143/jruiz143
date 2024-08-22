@@ -1,4 +1,5 @@
 ##  ![image](https://github.com/user-attachments/assets/d01f2054-fef9-43f4-b40d-cee7b9b6c3c3)
+HI! I'M JACKIE. COFFEE LOVER AND CERTIFIED PEANUTS LOVER. 
 
 
 
