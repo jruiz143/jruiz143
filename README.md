@@ -1,4 +1,7 @@
-##  ![image](https://github.com/user-attachments/assets/d01f2054-fef9-43f4-b40d-cee7b9b6c3c3)
+## ![image](https://github.com/user-attachments/assets/01158f3d-3407-41e0-aebf-247bda9a9413)
+
+
+
 HI! I'M JACKIE. COFFEE LOVER AND CERTIFIED PEANUTS LOVER. 
 
 
